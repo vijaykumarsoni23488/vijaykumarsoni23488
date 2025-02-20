@@ -3,7 +3,7 @@
 
 ## Contact
 - Mobile: +49-15252300747
-- Email: vijay.soni@inspectif.ai
+- Email: vijay.soni@koerber.com
 - LinkedIn: [linkedin.com/in/vijay-kumar-soni-49221122](https://www.linkedin.com/in/vijay-kumar-soni-49221122)
 
 ## Top Skills
